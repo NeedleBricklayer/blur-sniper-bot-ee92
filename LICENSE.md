@@ -1,4 +1,4 @@
-# 
+# elite NFT Rarity Sniper for blur sniper bot | floor-sweeping & royalty-calculator offers the most advanced blur sniper bot, with floor-sweeping and royalty-calculator. Ideal for
 
 
 
